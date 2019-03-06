@@ -1,1 +1,1 @@
-kenbunshoku
+kenbunshoku haki
